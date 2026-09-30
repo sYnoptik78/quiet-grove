@@ -120,7 +120,8 @@ Changes will be published on this page with an updated revision date.
 For questions regarding this Privacy Policy or ClarioMark, please contact:
 
 **Quiet Grove**  
-Email: guietgrove.team@gmail.com
+Email: guiet.grove.team@gmail.com
+
 
 
 
